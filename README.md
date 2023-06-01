@@ -1,4 +1,4 @@
-### Hi there, o pato 👋
+### BH pato demais.
 
 <!--
 **ElizeudoGrau/ElizeudoGrau** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
